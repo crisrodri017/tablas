@@ -1,4 +1,4 @@
 # CRISTIAN FELIPE RODRIGUEZ GALINDO  20231579011
-# slohds<op<s>>
+# Ingenierìa civil
 # Universidad Distrital 
 # Facultad tecnologica
